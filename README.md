@@ -1,0 +1,4 @@
+- 👋 Hi, I’m @Ninzkis
+- 👀 I’m interested in finding an new exciting career
+- 🌱 I’m currently learning coding and software development
+- 💞️ I'm looking for a collaboration with a company where I could develop my skills and become a skilled coder
